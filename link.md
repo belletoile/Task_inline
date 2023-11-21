@@ -1,0 +1,1 @@
+https://www.figma.com/file/5iRMvN7EVSydyvkfO3m2Ju/%D0%A2%D0%B5%D1%81%D1%82%D0%BE%D0%B2%D0%BE%D0%B5-%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5-%D0%98%D0%9D%D0%9B%D0%90%D0%99%D0%9D?type=whiteboard&node-id=0%3A1&t=Hxtm1AafQUY4wxnl-1
